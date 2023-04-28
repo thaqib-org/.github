@@ -1,3 +1,3 @@
-# Thaqib Astronomical Organisation
+# Thaqib Astronomical Organization
 
 - Instagram: https://instagram.com/thethaqib
